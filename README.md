@@ -1,0 +1,2 @@
+# grafika_k1
+ 
